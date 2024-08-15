@@ -9,18 +9,13 @@
 
 - I have graduated from City University of London with a 1st in 2021  
 
-
-- My previous GitHub is https://github.com/TNVR98 which contains University projects.
-  
+- My work Github is https://github.com/TanvirDF.
 
 - I am East London based
   
-
 - I grew up in Italy   
   
-
-- ⚡ Fun fact: I learnt to swim on YouTube   
-  
+- ⚡ Fun fact: I learnt to swim on YouTube     
 
 <br/>  
 
