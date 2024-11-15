@@ -15,7 +15,7 @@
   
 - I grew up in Italy   
   
-- ⚡ Fun fact: I learnt to swim on YouTube     
+⚡ Fun fact: I learnt to swim on YouTube     
 
 <br/>  
 
